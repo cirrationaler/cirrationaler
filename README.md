@@ -1,6 +1,6 @@
 Welcome to my homepage!
 
-My name is cirrationaler, You can call me **cir** (formerly known as **cq_irritater**). Friends welcome—please state your reason if DM'ing.  
+My name is cirrationaler, You can call me **cir** (formerly known as **cq_irritater**). Friends welcome — please state your reason if DM'ing.  
 
 My QQ number is 2940514964, where you can find me.
 
